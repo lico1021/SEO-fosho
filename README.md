@@ -1,4 +1,4 @@
-SEOmothafucka
+SEOfosho
 =============
 
-SEO mothafucka!
+SEO fosho!
